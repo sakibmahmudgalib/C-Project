@@ -1,1 +1,1 @@
-This code is project purpuse.anyone can edit.
+This code is edited by partnar.
